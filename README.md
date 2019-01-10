@@ -21,5 +21,5 @@ Présentation
 
 ## Réseaux sociaux:
 1. __Facebook__: [Profil](https://www.facebook.com/renda.elisa)
-2. __Instagram__ : [Probil](https://www.instagram.com/elisarnd/)
+2. __Instagram__ : [Profil](https://www.instagram.com/elisarnd/)
 
