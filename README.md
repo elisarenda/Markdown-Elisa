@@ -25,3 +25,6 @@ Présentation
 1. __Facebook__: [Profil](https://www.facebook.com/renda.elisa)
 2. __Instagram__ : [Profil](https://www.instagram.com/elisarnd/)
 
+## Totem: 
+
+![Koala](https://previews.123rf.com/images/djvstock/djvstock1712/djvstock171201214/91091628-image-de-l-ic%C3%B4ne-mignon-koala.jpg)
